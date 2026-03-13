@@ -10,7 +10,7 @@ Each figure is designed to sit naturally on shelves, desks, and quiet spaces in 
 
 Explore the full collection here:
 
-https://vesalis.eui
+https://vesalis.eu
 
 ## About
 
